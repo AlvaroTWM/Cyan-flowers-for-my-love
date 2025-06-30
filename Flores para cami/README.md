@@ -1,1 +1,0 @@
-Hola, amor no se si vas a leer esto pq normalmente ni yo leo los readme que dejamos en los codigos, hice esto con video tutoriales pq la verdad ya no recuerdo tanto como desarrollar ya que mi vida tomo otro rumbo, espero que te gusten
